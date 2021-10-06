@@ -1,1 +1,1 @@
-# lab1
+# Mom hobby jest piłka nożna.
