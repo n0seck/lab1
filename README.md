@@ -1,1 +1,1 @@
-# Mom hobby jest piłka nożna.
+# Moim hobby jest piłka nożna.
